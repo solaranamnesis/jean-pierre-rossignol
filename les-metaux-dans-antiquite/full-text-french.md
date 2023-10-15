@@ -2,7 +2,7 @@
 
 ## Origines religieuses de la Métallurgie, ou les Dieux de la Samothrace représentés comme Métallurges d'après l'Histoire et la Géographie ;
 
-### De l'Orichalque, Histoire du Cuivre et de ses Alliages, suivie d'un Appendice sur les Substances appelées Éélectre.
+### De l'Orichalque, Histoire du Cuivre et de ses Alliages, suivie d'un Appendice sur les Substances appelées Électre.
 
 ## Par Jean-Pierre Rossignol.
 
